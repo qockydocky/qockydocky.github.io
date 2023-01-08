@@ -1,7 +1,7 @@
 #                                                                         Himanshu Sharma
 Moradabad, Uttar Pradesh
 
-actuallyhimanshu@outlook.com | 9999411235
+actuallyhimanshu@outlook.com
 
 
  TECHNICAL SKILLS
